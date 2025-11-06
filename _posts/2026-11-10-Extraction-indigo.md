@@ -22,4 +22,4 @@ Après avoir planter :
 - De la Grémille
 - Je ne pouvais évidement pas ne ne pas avoir du Pastel (Isatis tinctoria) ! 
 
-![Crepe](https://https://beinva.github.io/codex-curiositas/assets/img/PXL_20250820_191412315.jpg){: .mx-auto.d-block :}
+![Pastel](https://https://beinva.github.io/codex-curiositas/assets/img/PXL_20250820_191412315.jpg){: .mx-auto.d-block :}
