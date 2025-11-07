@@ -21,5 +21,9 @@ Après avoir planter :
 - De la Gaude
 - De la Grémille
 - Je ne pouvais évidement pas ne ne pas avoir du Pastel (Isatis tinctoria) ! 
+- Il y'en a beaucoup d'autres, mais ce sera aussi locasion d'un nouvel article
 
 ![Pastel](https://https://beinva.github.io/codex-curiositas/assets/img/PXL_20250820_191412315.jpg){: .mx-auto.d-block :}
+
+## Pour la petite histoire du pastel
+
